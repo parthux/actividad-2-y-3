@@ -1,0 +1,1 @@
+https://www.diario26.com/319024--tragedia-en-longchamps-cuatro-jovenes-murieron-en-un-impactante-accidente
